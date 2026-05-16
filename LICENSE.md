@@ -1,4 +1,4 @@
-# 
+# Enhance QuickBooks for PC | QuickBooks for Windows with QuickBooks for PC | QuickBooks for Windows instant Extension: expense-tracking & payroll-management, the #1 extension.
 
 
 
